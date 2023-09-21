@@ -1,1 +1,1 @@
-# CoffeeShop
+# WELLNESS PRO INC.
